@@ -117,8 +117,8 @@ Protein / Carbs / Fats breakdown
 
 # 📬 Contact
 
-If you found this useful or want to collaborate:
 
-📧 Your Email : udaykiranyerranaga@gmail.com
 
-🔗 LinkedIn Profile : https://www.linkedin.com/in/mr-uday-kiran-42803a2b3/
+📧 Your Email : nikhilatopalle@gmail.com
+
+
